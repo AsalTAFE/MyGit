@@ -6,3 +6,5 @@
 2. Learn always   
 3. Be Curious   
 4. See the result
+
+**This is a great way of learning! Learning is for Life!! Keep up the good work!!!**
